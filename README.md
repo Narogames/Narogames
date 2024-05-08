@@ -8,9 +8,7 @@
 <br>
 
 #### Sou lacto vegetariano (não como carne nem ovo).
-<br>
 
-#### De interesses e hobbies giram em torno de pesquisar sobre o que acho interessante, de vez enquanto buscar assuntos novos para estudar e cada dia aprender mais. Infelizmente jogo LOD (League of Draven), ja joguei bastante roblox (gpo principalmente), e também tenho o hobbie de tocar teclado/piano. Vou à academia 3 vezes por semana.
 
 ### <b><br> Conhecimentos <br><b>
 
